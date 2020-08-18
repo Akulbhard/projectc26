@@ -1,0 +1,1 @@
+exlaination : A marble cake is a cake with a streaked or mottled appearance (like marble) achieved by very lightly blending light and dark batter. It can be a mixture of vanilla and chocolate cake, in which case it is mainly vanilla, with streaks of chocolate.
